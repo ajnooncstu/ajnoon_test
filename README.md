@@ -1,7 +1,7 @@
 # Our favorite things
 
 ## Favorite foods
-Matcha Shabu
+Matcha Pizza
 
 ## Favorite activities
 Music Play
